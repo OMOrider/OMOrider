@@ -1,3 +1,3 @@
-# Ciallo～(∠・ω< )⌒★ TEST
+# Ciallo～(∠・ω< )⌒★
 
 
